@@ -24,19 +24,19 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 😏 𝐍𝐀𝐌𝐄:- RAYAN MAHMUD RAHAT
+- 😏 𝐍𝐀𝐌𝐄:- 𝐑𝐀𝐘𝐀𝐍 𝐌𝐀𝐇𝐌𝐔𝐃 𝐑𝐀𝐇𝐀𝐓
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 😺 𝐀𝐆𝐄:- 17
+- 🫣 𝐀𝐆𝐄:- 𝟏𝟕
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- intermediate 1st Year
+- 📕 𝐄𝐃𝐔𝐂𝐀𝐓𝐈𝐎𝐍:- 𝐈𝐧𝐭𝐞𝐫 𝟏𝐬𝐭 𝐲𝐞𝐚𝐫
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ❤ LIFE PARTNER:- CHADNI
+- ❤ 𝐋𝐢𝐟𝐞 𝐏𝐚𝐫𝐭𝐧𝐞𝐫:- 𝐂𝐡𝐚𝐝𝐧𝐢
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -48,23 +48,23 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 📱INSTAGRAM:- [RAYAN MAHMŰĐ](https://www.Instagram.com/rayan_mahmud_9x)
+- 📱𝐈𝐍𝐒𝐓𝐀𝐆𝐑𝐀𝐌:- [](https://www.Instagram.com/rayan_mahmud_9x)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [RAYAN MAHMŰĐ](https://www.facebook.com/RAYANMAHMUD6T9)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝐑𝐀𝐘𝐀𝐍 𝐌𝐀𝐇𝐌𝐔𝐃](https://www.facebook.com/RAYANMAHMUD6T9)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [RAYAN MAHMUD- রায়ান মাহমুদ](https://www.facebook.com/Peranaichill6t9)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [𝐑𝐀𝐘𝐀𝐍 𝐌𝐀𝐇𝐌𝐔𝐃 - রায়ান মাহমুদ ツ](https://www.facebook.com/Peranaichill6t9)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [RAYAN-6T9](https://github.com/RAYAN-6T9)
+- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [𝐑𝐀𝐘𝐀𝐍-𝟔𝐓𝟗](https://github.com/RAYAN-6T9)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ⚡ Fun fact **I think I am funny**
+- 👻 Fun fact **I think I am funny**
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
