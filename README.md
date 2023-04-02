@@ -40,7 +40,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 👉 𝐈𝐍𝐒𝐋𝐈𝐑𝐀𝐓𝐈𝐎𝐍:- 𝐌𝐘𝐒𝐄𝐋𝐅
+- 👉 𝗜𝗡𝗧𝗥𝗨𝗗𝗨𝗖𝗧𝗜𝗢𝗡:- 𝗠𝗬𝗦𝗘𝗟𝗙
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
