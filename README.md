@@ -52,7 +52,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝐑𝐀𝐘𝐀𝐍 𝐌𝐀𝐇𝐌𝐔𝐃](https://www.facebook.com/RAYANMAHMUD6T9)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝐑𝐀𝐘𝐀𝐍 𝐌𝐀𝐇𝐌𝐔𝐃](https://www.facebook.com/XENOCIDEXRAYAN)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
