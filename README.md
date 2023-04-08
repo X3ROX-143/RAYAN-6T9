@@ -36,7 +36,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-𝐋𝐎𝐕𝐄 : 𝐀𝐌𝐌𝐔 💙
+- ✨ 𝐋𝐎𝐕𝐄 : 𝐀𝐌𝐌𝐔 💙
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
