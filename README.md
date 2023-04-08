@@ -36,7 +36,7 @@
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
-- ❤ 𝐋𝐢𝐟𝐞 𝐏𝐚𝐫𝐭𝐧𝐞𝐫:- 𝐂𝐡𝐚𝐝𝐧𝐢
+𝐋𝐎𝐕𝐄 : 𝐀𝐌𝐌𝐔 💙
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -71,8 +71,8 @@
 <h2><img width="28" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/icons/icon-contact.png" /><i> Connect With Me :</i></h2>
 
 [![Instagram](https://img.shields.io/badge/IG-%40RAYAN.MAHMUD-red?style=for-the-badge&logo=instagram)](https://www.instagram.com/rayan_mahmud_9x)
-[![Facebook](https://img.shields.io/badge/Facebook-green?style=for-the-badge&logo=facebook)](https://fb.com/RAYANMAHMUD6T9)
-[![Messenger](https://img.shields.io/badge/Chat-Messenger-blue?style=for-the-badge&logo=messenger)](https://m.me/RAYANMAHMUD6T9)
+[![Facebook](https://img.shields.io/badge/Facebook-green?style=for-the-badge&logo=facebook)](https://fb.com/XENOCIDEXRAYAN)
+[![Messenger](https://img.shields.io/badge/Chat-Messenger-blue?style=for-the-badge&logo=messenger)](https://m.me/XENOCIDEXRAYAN)
 
 
 ### ⚙️ &nbsp; Language & programming
